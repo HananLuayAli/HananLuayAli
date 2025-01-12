@@ -1,6 +1,6 @@
 # HananLuayAli
 ### 👋🏻 Hi there! I'm Hanan👩🏻‍💻
-![Hijabi Avatar](https://raw.githubusercontent.com/HananLuayAli/HananLuayAli/main/Hanan%20Luay%20Ali.png)
+
 
 ## 🚀 About Me
 I'm a dynamic and goal-oriented professional with experience in telecommunications, research, banking, and quality assurance. My expertise lies in market research, strategic analysis, and market insights, driving business growth and operational efficiency. I thrive on solving challenges with data-driven strategies and cross-functional collaboration.
