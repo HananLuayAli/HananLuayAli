@@ -45,4 +45,6 @@ I'm a dynamic and goal-oriented professional with experience in telecommunicatio
 ## 📫 Let's Connect!
 
 - **Email**: [Hananluay1@gmail.com](mailto:Hananluay1@gmail.com)
-- **LinkedIn**: [Hanan Luay Ali](https://www.linkedin.com/in/hanan-luay-ali/)
+- **LinkedIn**: [Hanan Luay Ali](www.linkedin.com/in/hanan-luay-ali-039360193)
+
+
